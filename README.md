@@ -47,4 +47,44 @@ https://twitter.com/fchollet/status/1661907441909645312 https://twitter.com/fcho
 
 https://www.youtube.com/watch?v=pHWsp-OBm40
 
+----
+Poststructuralism in music
+----
 
+https://www.youtube.com/watch?v=KR715ql1-Fk playback at 0.5x Brian Eno-David Byrne | Mea Culpa | Original Bruce Conner Promo Video Restored | 1981
+
+
+"What he said, he said "I'm sorry, I committed a sin, I made a mistake. I asked (?) to forgive me, please forgive me." He said "mea culpa," can you put it better?
+
+I'm saying I'm sorry, I made a mistake, I made... I committed a sin, I made a mistake. and I'm never gonna do it again, I never did it before and I'm never gonna do it again"
+
+http://www.bush-of-ghosts.com/
+"For example, their opening track, “America is waiting,” and “Mea Culpa,” is taken from a radio talk show in San Francisco and New York, respectively. “Help me somebody” records a sermon in New Orleans."
+
+"Eno and Byrne first worked together on Talking Heads 1978 second album, More Songs About Buildings and Food. My Life in the Bush of Ghosts was Byrne's first album without Talking Heads. It was primarily recorded during a break between the Talking Heads albums Fear of Music (1979) and Remain in Light (1980), also both produced by Eno. Problems clearing samples delayed the release of Bush of Ghosts by several months.
+
+The album was incredibly innovative and original in its day, integrating sampled vocals and found sounds, African and Middle Eastern rhythms, and electronic music techniques. Eno described My Life as a "vision of a psychedelic Africa". Rather than conventional singing, most of the vocals are sampled from other sources, such as Arabic singers, radio presenters, and in the case of the track Jezebel Spirit, an exorcist. Some musicians had previously used similar sampling techniques, but according to Guardian writer Dave Simpson, sampling had never before been used "to such cataclysmic effect".
+
+Track 2 on the album, Mea Culpa, featured a vocal sample of “inflamed caller and smooth politician replying, both unidentified; radio call-in show, New York, July 1979”, according to the album sleeve notes. 
+
+[http://davidbyrne.com/explore/my-life...
+](http://davidbyrne.com/explore/my-life-in-the-bush-of-ghosts)
+•
+
+The official short films accompanying two Bush of Ghosts tracks, America Is Waiting and Mea Culpa, were made by Bruce Conner, an American artist who worked with assemblage, film, drawing, sculpture, painting, collage, and photography.
+
+Conner’s innovative technique of skillfully montaged shots from pre-existing borrowed or found footage can be seen in his first film “A Movie” (1958). His subsequent films are most often fast-paced collages of found footage or of footage shot by Conner; however, he made numerous films, including Crossroads, his 30-plus-minute meditation on the atom bomb, that are almost achingly deliberate in their pace.
+
+Conner was among the first to use pop music for film soundtracks. His films are now considered to be the precursors of the music video genre. They have inspired other filmmakers, such as Conner's friend Dennis Hopper, who said, “Bruce’s movies changed my entire concept of editing. In fact, much of the editing of Easy Rider came directly from watching Bruce’s films."
+
+David Byrne initially wrote to Conner around August 1980, asking him if he would be interested in creating a video for a track from the then-forthcoming new Talking Heads album, Remain in Light. Perhaps record company pressure came to bear, to create more commercially viable videos? Anyway, Conner's found footage, abstract cut and paste is a superb match for the Bush of Ghosts material.
+
+Bruce Jenkins, Professor of Film, at the School of the Art Institute of Chicago: “Mea Culpa comes near the end of his (Conner’s) active film-making. It’s part of this period when his work is a little slower, a little more considered. There’s a kind of tranquillity… Mea Culpa allows Conner to work with scientific and industrial and educational films, and take out of them the most abstract parts”.
+
+Conner's other collaborations with musicians include Devo (Mongoloid), Terry Riley (Looking for Mushrooms (long version) and Easter Morning), Patrick Gleeson and Terry Riley (Crossroads), and three more films with Gleeson (Take the 5:10 to Dreamland, Television Assassination, and Luke). His film of dancer and choreographer Toni Basil, Breakaway (1966), featured a song recorded by Basil.
+
+https://www.theguardian.com/artanddesign/2008/oct/09/art1
+
+"Influenced by dada and surrealism and the found objects of Marcel Duchamp, Conner first gained attention with his assemblage art, exhibiting at the Alan gallery in New York. His movie-making dated back to when he ran a film society at the University of Colorado. He invited Stan Brakhage to show his experimental films there, and Brakhage advised Conner to make films. The consequence was Movie (1958), a 12-minute collage of stock or found footage which moves from the comic (crazy races, a chase scene involving cars and cowboys) to the disturbing (shivering refugees, an execution, air crashes), questioning the way we view a film."
+
+I've said this before and I'll say it again: David Byrne is the Don Delillo of music, and Delillo is the David Byrne of literature. The footage of air crashes is similar to the car crashes played in a classroom in White Noise.
