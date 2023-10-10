@@ -19,6 +19,8 @@ https://www.youtube.com/watch?v=doL9mRMEUGw
 
 https://en.wikipedia.org/wiki/Cybernetic_Culture_Research_Unit https://monoskop.org/Cybernetic_Culture_Research_Unit
 
+https://www.wired.com/1997/02/ffharaway/
+
 ![image](https://github.com/hatonthecat/Poststructuralism/assets/76194453/97728cb4-5884-4b54-aa96-0b23eac3d8f5) https://en.wikipedia.org/wiki/Tiqqun
 
 https://www.orphandriftarchive.com/neo-future/delphi-carstens-hyperstition-tedx/ http://xenopraxis.net/readings/carstens_hyperstition.pdf
