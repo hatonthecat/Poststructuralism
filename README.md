@@ -41,6 +41,10 @@ https://richardcoyne.com/2017/05/14/whats-wrong-with-accelerationism/
 
 https://www.theguardian.com/world/2019/jun/20/donna-haraway-interview-cyborg-manifesto-post-truth
 
+https://twitter.com/fchollet/status/1661907441909645312 https://twitter.com/fchollet/status/1661907441909645312 "memetic vaccines" or attenuated viral memes, are words, phrases, images and gifs that project a Rorschach inkblot using common language, shared values, and a notion of a future world that individuals from multiple points of view look towards. The most attenuated and "neutral" of memes is transitive- that which neither identifies an object nor accepts it, but rather describes it, as if a vital activity. 
+
+"Transitivity is traditionally thought of as a global property of a clause, by which activity is transferred from an agent to a patient.[1]" Successful memetic vaccines, therefore, bind common speakers of a language to buzzwords that mean less about the individual than to a collective or nation-state. Memetic vaccines inoculate towards stability at the expense of individuality. Yet even in complex societies, attenuated memes are never able to confer complete protection.
+
 https://www.youtube.com/watch?v=pHWsp-OBm40
 
 
