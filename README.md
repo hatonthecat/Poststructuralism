@@ -3,6 +3,8 @@ Where all ideas from Accelerationism to Zelazny are analyzed. Human curated link
 
 https://www.theguardian.com/world/2017/may/11/accelerationism-how-a-fringe-philosophy-predicted-the-future-we-live-in
 
+http://k-punk.abstractdynamics.org/archives/004807.html (SIMON'S INTERVIEW WITH CCRU (1998)
+
 https://en.wikipedia.org/wiki/Roger_Zelazny https://www.theguardian.com/books/booksblog/2010/jan/05/hugos-lord-of-light-zelazny
 
 https://en.wikipedia.org/wiki/Fabulation
